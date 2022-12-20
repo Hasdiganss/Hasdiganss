@@ -5,10 +5,10 @@
  
 
 Pertama di ajak curhat.
-Kedua di ajak muncrat
+Kedua di ajak muncrat🥵
 
 
 don't forget to use a condom.💦
 
 
-ᴹᴿ᭄𝐇𝐚𝐬𝐝𝐢𝐢᭄𝐆𝐚𝐧𝐳×፝֟͜×
+ᴿ᭄𝐇𝐚𝐬𝐝𝐢𝐢⌘𝐆𝐚𝐧𝐳×፝֟͜× 
